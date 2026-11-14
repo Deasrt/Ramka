@@ -1,2 +1,1 @@
-https://www.figma.com/design/YS7d9HO8sganXy1oDFw0uI/%D0%A0%D0%9F%D0%9E261-icons-comp?node-id=1-2&m=dev&t=SkErkhNXmLp9iibe-1
-Работа 5 значками
+
